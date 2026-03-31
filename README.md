@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nina-pham
-- 📫 How to reach me: ninaqphm@sas.upenn.edu
+- 📫 How to reach me: nina.phampq@gmail.com
 - 😄 Pronouns: she/her
 
 <!---
